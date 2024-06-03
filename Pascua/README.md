@@ -5,10 +5,7 @@
 [Llueve](https://www.youtube.com/watch?v=yEbFndiPSGc&ab_channel=PROFETAYSALMISTA)
 
 [Quien cambie la historia](https://www.youtube.com/watch?v=jM8M_xgKbrc&ab_channel=JoseAngel187)
-
-
-
-[Tú Eres mi Rey]([https://www.youtube.com/watch?v=RRZ6Iaa6YL4&ab_channel=PabloEstrella](https://www.youtube.com/watch?v=84E4Rjzu6PI&ab_channel=AudioAdrenaline-Topic))
+[Tu eres mi Rey](https://www.youtube.com/watch?v=84E4Rjzu6PI&ab_channel=AudioAdrenaline-Topic)
 
 [Cantaré](https://www.youtube.com/watch?v=piFrvBKfCx0&ab_channel=ChristianMusicPlaylist)
 
