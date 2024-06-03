@@ -11,3 +11,14 @@
 
 
 [Mi esperanza eres Tú](https://www.youtube.com/watch?v=y6TJ8UdOsGM&ab_channel=ThirdDay-Topic)
+
+
+
+[Dios de avivamiento](https://www.youtube.com/watch?v=VgDOtJPWmFw&ab_channel=3rdDayRocker)
+
+
+[Tus palabras](https://www.youtube.com/watch?v=KqaA8XBI15o&ab_channel=ThirdDayVEVO)
+
+[La batalla](https://www.youtube.com/watch?v=3QaTaKJcodU&ab_channel=PhilWickham)
+
+[Inunda](https://www.youtube.com/watch?v=eEBQ0HDvi7w&ab_channel=Visi%C3%B3nJuvenil-Topic)
