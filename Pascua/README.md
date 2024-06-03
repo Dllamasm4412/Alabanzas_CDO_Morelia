@@ -2,18 +2,16 @@
 
 # Por favor escuchen los audios, aquí les dejo los links 
 
-[Levantaré hoy mis ojos a Sion](https://www.youtube.com/watch?v=pYzZkKC3pCo&ab_channel=jmigueba)
+[Llueve]([https://www.youtube.com/watch?v=pYzZkKC3pCo&ab_channel=jmigueba](https://www.youtube.com/watch?v=yEbFndiPSGc&ab_channel=PROFETAYSALMISTA))
 
-[Hay gran voz](https://www.youtube.com/watch?v=wrsxO4Ek_BE&ab_channel=jmigueba)
-
-
-[Levántate Señor y Roni Roni](https://www.youtube.com/watch?v=RRZ6Iaa6YL4&ab_channel=PabloEstrella)
+[Quien cambie la historia]([https://www.youtube.com/watch?v=wrsxO4Ek_BE&ab_channel=jmigueba](https://www.youtube.com/watch?v=jM8M_xgKbrc&ab_channel=JoseAngel187))
 
 
+[ Tú Eres mi Rey]([https://www.youtube.com/watch?v=RRZ6Iaa6YL4&ab_channel=PabloEstrella](https://www.youtube.com/watch?v=84E4Rjzu6PI&ab_channel=AudioAdrenaline-Topic))
 
-[Behold the Lamb](https://www.youtube.com/watch?v=u7KQSAWEljA&ab_channel=PassionVEVO)
 
 
-La canción de Roni Roni empieza como en el minuto 4.
+[Cantaré](https://www.youtube.com/watch?v=piFrvBKfCx0&ab_channel=ChristianMusicPlaylist)
 
-[¿Quién como el Señor?](https://link-url-here.org](https://www.youtube.com/watch?v=3CgJEKPAyt8&ab_channel=argenispirelayusti))
+
+[Mi esperanza eres Tú](https://link-url-here.org](https://www.youtube.com/watch?v=y6TJ8UdOsGM&ab_channel=ThirdDay-Topic)
